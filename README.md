@@ -1,1 +1,2 @@
 Alexander Patrushin
+patrusal@oregonstate.edu
